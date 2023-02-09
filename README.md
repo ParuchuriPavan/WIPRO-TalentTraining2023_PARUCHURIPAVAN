@@ -1,1 +1,0 @@
-# WIPRO-TalentTraining2023_PARUCHURIPAVAN
